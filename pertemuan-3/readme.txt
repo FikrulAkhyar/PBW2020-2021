@@ -1,0 +1,1 @@
+https://www.malasngoding.com/belajar-javascript-pengertian-dan-pengenalan-javascript/
